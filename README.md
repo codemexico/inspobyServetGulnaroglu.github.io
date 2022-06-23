@@ -1,1 +1,1 @@
-# inspobyServetGulnaroglu.github.io
+# www.inspobyServetGulnaroglu.com
